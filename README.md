@@ -15,18 +15,20 @@
 
 We're getting ready at [my place](https://www.google.com/maps/place/208+W+136th+St,+New+York,+NY+10030/@40.8161695,-73.9462434,17z/data=!3m1!4b1!4m5!3m4!1s0x89c2f6711d4dd009:0xa2705b37d1d138!8m2!3d40.816087!4d-73.944091). My door is open all day so come as early as you want. The earlier the better.
 
-Why? Because you'll ease my nerves. Also, the photographer is arriving at **12:00** so defitely be here before then.
+Why? Because you'll ease my nerves. Also, the photographer is arriving at **12:00** so definitely be here before then.
 
-Bring some beer, maybe some food, but think _carefully_ about what you bring to my apartment. You won't have time to go back home before the ceremony. So shave before you leave and arrive in clothes that your don't mind parting with for a few weeks while we're away.
+Bring some beer, maybe some food, but think _carefully_ about what you bring to my apartment. You won't have time to go back home before the ceremony. So shave before you leave and arrive in clothes that you don't mind parting with for a few weeks while we're away.
 
-```We leave for the church at 1:30 sharp```
+```
+We leave for the church at 1:30 sharp
+```
 
 All you fools will ride down together in an uber. I'll ride separately with my parents.
 
 ## Ceremony
 You all have two jobs.
 
--  Ushering people to their seats
+- Ushering people to their seats
 - Ushering people out of the church once we're done
 
 #### Jordan & Tony:
@@ -37,10 +39,14 @@ You're in charge of seating the first three rows or so
 You two are the most familiar with the families and will make sure the parents/grandparents are in the right seats.
 
 #### Travis, Bobby, & Mike
-```You'll help seat the rows further back```
+```
+You'll help seat the rows further back
+```
 
 #### Travis
-```Remind Paul to slide the piano back```
+```
+Remind Paul to slide the piano back
+```
 
 #### Jordan
 
@@ -50,12 +56,14 @@ You are to give  the corsages & boutonnieres to our grandparents
 
 #### Derrick
 
-```You're in the back with me```
+```
+You're in the back with me
+```
 
 
 **Once the ceremony is over we immediately start taking photos**
 
-This is
+This photo session is for the two families and full bridal party.
 
 Photos will be taken right in the church. So before we can start, we need all the guests to leave. The window of time is small so I'm going to ask Father to make an announcement towards the end of the ceremony to urge people out. If you see any chatty stragglers, kindly usher them on their way.
 
